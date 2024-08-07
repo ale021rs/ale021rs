@@ -13,4 +13,12 @@ Here are some ideas to get you started:
 - 📫 How to reach me: ...
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
--->.
+TIMES QUE O BRUXO PASSOU NA SUA CARREIRA
+-  BRUXO NO BARCELONA
+-https://youtu.be/qaSMnuXla_4?si=bm7hGEclA1bbsF28
+-  BRUXO NO FALMENGO
+https://youtu.be/juzMWI0hpag?si=9cNgqhqnGKxHqBwQ
+-  BRUXO NO PSG
+https://youtu.be/fU7OcLG3mDs?si=gQ2Z4kQcdEV41o0H
+-  BRUXO NO GREMIO
+https://youtu.be/srmUvFjUCUY?si=FTDgw41GAlHSER3c
